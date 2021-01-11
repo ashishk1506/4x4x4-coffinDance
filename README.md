@@ -1,3 +1,3 @@
 # 4x4x4-coffinDance
-https://www.youtube.com/watch?v=jl9xKw_xEas
+https://youtu.be/wynEUC_gcT8
 
